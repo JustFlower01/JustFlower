@@ -1,3 +1,1 @@
-▫️ Merhaba Ben Just Flower
-▫️ Örenci Geliştirici
-▫️ Nezuko Bot Owner
+▫️ Merhaba Ben Just Flower, Örenci Geliştiricisiyim.
